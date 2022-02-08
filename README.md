@@ -1,2 +1,2 @@
 # Hello-World
-YO WHATS GOOD NEW TO PROGRAMMING!! LETS LEARN SOME SHIT!!!
+Looking to learn as much as I can!
